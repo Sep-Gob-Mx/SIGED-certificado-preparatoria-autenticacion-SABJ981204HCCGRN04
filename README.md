@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SABJ981204HCCGRN04
+SABJ981204HCCGRN04
